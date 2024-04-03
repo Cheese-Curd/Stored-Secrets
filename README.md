@@ -1,0 +1,6 @@
+# Nosey Noesy...
+Do you wish to see what goes on throughout this DREAMER's head? Then you're in the correct place, if not... It would be best if you left now.
+
+Tred lightly, wanderer.
+
+# Nosey Noesy...
